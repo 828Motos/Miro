@@ -1,2 +1,4 @@
 # Miro
 entrega de wireframe ecommerce personal 
+Israel Pule
+https://miro.com/welcomeonboard/T0duQi9ydi9UcUZtZ01tWXRJMEt2UVI3bkd1dnhSdlVvcVBHMi9kWUY3SHNWYVozYTFDMUNGdzNwMmlnamtLdXJtVVVPNndNWjIxV3I1THpDMElGbHlHVXZhaDJRcmRYVDcvOHJGSmV5b1Q2d2FTQVJIdmoxeWlYNnhWSDQ5NWtyVmtkMG5hNDA3dVlncnBvRVB2ZXBnPT0hdjE=?share_link_id=650505132271
